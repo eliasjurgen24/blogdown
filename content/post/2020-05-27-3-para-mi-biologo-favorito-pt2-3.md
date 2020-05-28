@@ -23,8 +23,8 @@ Pues mejor ya fin con esta carta porque qué tal que nunca la lees y yo aquí es
 * pd.3 mientras diré que **TE QUIERO MUCHOOOOOOOOO <3**
 * pd.4 eres mi krillcito y mi novio, mío y de nadie más, yo tengo al mejor novio del mundo y ni modo, yo lo gané _-aquí va el emoji que tiene cara de presumido, porque sí soy eh, tengo al mejor novio del mundo, obviamente me van a dar ganas de presumirlo y que todo el mundo sepa la suerte que tengo de tenerte-_
 * pd.5 soy tu patito y tu novio, tuyo y de nadie más, tienes al novio más tontito y cursi del mundo y te aguantas.
-* pd.6 dejo fotos de nosotros más abajo pues porque sí, tú sales perfecto pero yo odio cómo me veo, aún así, este blog sólo lo vas a ver tú.
 
 
 ## FIN
+
 
